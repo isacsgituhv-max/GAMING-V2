@@ -1,6 +1,5 @@
 # GAMING-V2
 all gaming shit I found!
-# GAMING
 Click [here](https://irv77.github.io/hd_fnaf/1/) for FNAF 1!<br>
 Click [here](https://irv77.github.io/hd_fnaf/2/) for FNAF 2!<br>
 Click [here](https://irv77.github.io/hd_fnaf/3/) for FNAF 3!<br>
