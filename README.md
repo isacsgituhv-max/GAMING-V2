@@ -17,7 +17,7 @@ Click [here](https://dorukyum.github.io/FNAF-Web/) for FNAF web!!<br>
 if it doesn't load fully just click reload to load it if still not loading it might be blocked by your school or administrators!!<br>
 
 # extras I guess
-click [here](https://drive.google.com/uc?export=download&id=1HNYbT9-lARcjkPZ6bcYsXDMIcyQZtmht) for a soundboard
+click [here](https://drive.google.com/file/d/1HNYbT9-lARcjkPZ6bcYsXDMIcyQZtmht/view?usp=drive_link) for a soundboard
 Click [here](https://cnvmp3.com/) for Youtube to mp3!!<br>
 Click [here](https://ultraabox.github.io/) for song maker!!<br>
 Click [here](https://scratch.mit.edu/) for scratch!!<br>
