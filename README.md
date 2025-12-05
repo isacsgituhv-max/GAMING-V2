@@ -14,15 +14,16 @@ Click [here](https://unicyclehero.github.io/) for unicycle hero!!<br>
 Click [here](https://github.com/genizy/web-port) for web-ports of PC games!!<br>
 Click [here](https://archive.org/details/internetarcade) for classic games!!<br>
 Click [here](https://dorukyum.github.io/FNAF-Web/) for FNAF web!!<br>
-if it doesn't load fully just click reload to load it if still not loading it might be blocked by your school or administrators!!<br>
-
-# extras I guess
-click [here](https://drive.google.com/file/d/1HNYbT9-lARcjkPZ6bcYsXDMIcyQZtmht/view?usp=drive_link) to download my soundboard <br>
-click [here](https://drive.google.com/file/d/1nN1vsVvX4nV56RE1V3kcNJBXA1bExAqj/view?usp=drive_link) to download the fanf movie <br>
 Click [here](https://cnvmp3.com/) for Youtube to mp3!!<br>
 Click [here](https://ultraabox.github.io/) for song maker!!<br>
 Click [here](https://scratch.mit.edu/) for scratch!!<br>
 Click [here](https://vinmannie.github.io/srb2web/) for sonic 3d!!<br>
+ 
+
+# downloadables
+click [here](https://drive.google.com/file/d/1HNYbT9-lARcjkPZ6bcYsXDMIcyQZtmht/view?usp=drive_link) to download my soundboard <br>
+click [here](https://drive.google.com/file/d/1nN1vsVvX4nV56RE1V3kcNJBXA1bExAqj/view?usp=drive_link) to download the fanf movie <br>
+click [here](https://drive.google.com/file/d/117GST8puHVY3hzUczaTer60FiRMtdNBd/view?usp=drive_link) to download the fanf movie <br>
  
  
  <hr>
